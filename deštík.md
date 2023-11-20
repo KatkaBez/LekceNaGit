@@ -7,7 +7,7 @@ na široký deštník.
 Kdo je pod tím deštníkem?
 
 To jsem já, panenka,
-točí se mi sukénka.
+točí se mi okénka.
 
 Běžím, běžím k sluníčku
 osušit si sukničku.
