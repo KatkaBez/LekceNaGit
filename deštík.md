@@ -4,7 +4,7 @@
 na široký deštník.
 
 Ťuká, ťuká prstíkem.
-Kdo je pod tím deštníkem?
+Ruda s houskovým knedlíkem
 
 To jsem já, panenka,
 točí se mi okénka.
